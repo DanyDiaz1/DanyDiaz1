@@ -1,2 +1,2 @@
 ### Hi, I'm Dany 😁👋🏻
-![Mono programador](https://static.paraloscuriosos.com/img/articles/7923/470x470/orig.5832b44adf7a9_123.gif)
+![Mono programador](https://media1.tenor.com/images/c16df9f3de72ca60af04fe9b6fcf15af/tenor.gif?itemid=7413429)
