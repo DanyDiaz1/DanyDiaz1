@@ -1,7 +1,4 @@
 <h1 align="center">Hi 👋, I'm Dany</h1>
-<h3 align="center">Student</h3>
-
-- 🌱 I’m currently learning **C language, web development (HTML,CSS,JS)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
